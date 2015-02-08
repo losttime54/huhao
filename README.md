@@ -1,2 +1,0 @@
-# huhao
-Study of special.
